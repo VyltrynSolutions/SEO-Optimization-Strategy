@@ -1,2 +1,2 @@
 # SEO-Optimization-Strategy
-Demo Showcasing SEO &amp; Digital Marketing abilities.
+Demo showcasing SEO &amp; Digital Marketing abilities.
